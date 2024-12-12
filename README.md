@@ -1,2 +1,0 @@
-# SCF
-Strathmore Christian Fellowship
